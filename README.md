@@ -69,4 +69,4 @@ Tant Endlesss com Fortnite x Travis Scott són exemples paradigmàtics de la nov
 - Manovich, L. (2001). *The Language of New Media*. MIT Press.  
 - Manovich, L. (2008). *Software Takes Command*. Bloomsbury.  
 - Endlesss.fm – [https://endlesss.fm/](https://endlesss.fm/)  
-- Epic Games – Travis Scott x Fortnite – [https://www.epicgames.com/fortnite/en-US/news](https://www.epicgames.com/fortnite/en-US/news)  
+- Fortnite Fandom – Travis Scott x Fortnite – [https://fortnite.fandom.com/wiki/Travis_Scott%27s_Astronomical)  
