@@ -35,7 +35,7 @@ Seguint Manovich, la transcodificació es fa evident: l’objecte cultural tradi
 🔗 https://endlesss.fm/
 
 **Imatge:**  
-![Endlesss Screenshot](https://endlesss.fm/static/media/RifffEdit.5edc5bc9.jpg)
+![Endlesss Screenshot](./img/endlesss@1400x789.jpg)
 
 ---
 
@@ -54,7 +54,7 @@ L’obra redefineix els límits de l’escenografia i la posada en escena. La te
 🔗 https://www.youtube.com/watch?v=wYeFAlVC8qU
 
 **Imatge:**  
-![Fortnite x Travis Scott](https://www.adweek.com/creativity/epic-games-astronomical-travis-scott-event-wins-cannes-digital-craft-grand-prix/)
+![Fortnite x Travis Scott](./img/images.jpg)
 
 ---
 
