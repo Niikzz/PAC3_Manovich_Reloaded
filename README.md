@@ -70,4 +70,3 @@ Tant Endlesss com Fortnite x Travis Scott són exemples paradigmàtics de la nov
 - Manovich, L. (2008). *Software Takes Command*. Bloomsbury.  
 - Endlesss.fm – [https://endlesss.fm/](https://endlesss.fm/)  
 - Epic Games – Travis Scott x Fortnite – [https://www.epicgames.com/fortnite/en-US/news](https://www.epicgames.com/fortnite/en-US/news)  
-- GQ Magazine UK – Travis Scott Concert Visuals – [https://www.gq-magazine.co.uk](https://www.gq-magazine.co.uk)
