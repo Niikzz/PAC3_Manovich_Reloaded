@@ -2,6 +2,7 @@
 
 **Autor:** Nikoloz Elkanishvili  
 **Usuari GitHub:** Niikzz  
+**Assignatura:** Cultura Digital
 **Aula:** 1  
 **Títol del treball:** _Endlesss i Fortnite x Travis Scott – Noves formes de remediació digital_
 
